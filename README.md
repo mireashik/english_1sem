@@ -40,3 +40,20 @@
 ![image](https://github.com/mireashik/english_1sem/assets/123753819/4a056e09-ef7b-48d1-94fb-daae0e069a3c)
 
 ## 5A. To Learn or Not to Learn Foreign Languages?
+![image](https://github.com/mireashik/english_1sem/assets/123753819/0663997c-38d6-48d3-ac54-9de7519b0d0f)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/2478c18f-5b10-491b-9be3-29dd30833042)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/16a79f2b-c2b7-483d-8bbb-0cac4c59dd48)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/0d79a6b7-1d4f-4af3-a9e6-adf9399e0c38)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/87c018cb-331a-4bc0-a13c-8038a1f0d212)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/7958a83e-4fca-414e-8bd2-2ee113287018)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/1779e90c-d431-40fb-b6fd-dc2ad9147235)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/728be68c-25e0-4b5f-8233-6507d1ce1b5a)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/b4846cf2-8dd4-46e6-8e5e-72fd6eb5848d)
