@@ -11,3 +11,6 @@
 ![image](https://github.com/mireashik/english_1sem/assets/123753819/3cad7571-2daa-490a-998b-45e47082f70a)
 
 ![image](https://github.com/mireashik/english_1sem/assets/123753819/87d9b352-a33e-4346-8815-42ac81d79bd8)
+
+![image](https://github.com/mireashik/english_1sem/assets/123753819/db2dd9df-973b-4048-ac66-e0fdff6964b8)
+
